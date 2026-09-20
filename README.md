@@ -207,4 +207,4 @@ Agatha Christie: Evil Under the Sun is the full free version, meaning you have a
 - 💬 **[Community](https://www.softyne.com/about-us/)**
 
 ---
-**Last updated:** 2026-09-20 14:28:17 UTC
+**Last updated:** 2026-09-20 17:55:28 UTC
